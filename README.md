@@ -4,11 +4,10 @@
 
 <sub>Known for remaking my github profile A LOT .. but hey, I'm still corgiez </sub>
 
-<img src="https://github.com/user-attachments/assets/a00dd66a-2580-4535-be0e-6f1725a01ab6" width="500">
+<img src="https://github.com/user-attachments/assets/97f2cb8f-024c-4fbc-9fcc-e63a29690e0d" width="600">
 
 
 ![lovely](https://64.media.tumblr.com/d4c692f937c81062bc823b2aa5825d76/39223ee0f863547b-b4/s1280x1920/e3cae630d42ae57b40434f1ff9425ed52854a62d.pnj)
-
 
 $\color{#F2F7FB}{\textsf{open }}\color{#DCEAF6}{\textsf{to }}\color{#C3DAEE}{\textsf{c+h }}\color{#A9C9E5}{\textsf{. int }}\color{#8FB8DB}{\textsf{freely }}\color{#75A7D1}{\textsf{with }}\color{#5B95C7}{\textsf{me}}$
 
