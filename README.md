@@ -26,10 +26,11 @@ $\color{#9BE7FF}{\textsf{I }}\color{#7FDFFF}{\textsf{will }}\color{#63D6FF}{\tex
 
 
 
-[![Visit](https://img.shields.io/badge/-card-AEDBFF?style=flat-plastic)](https://corgiez.carrd.co) 
-[![Visit](https://img.shields.io/badge/-int-FFF5B3?style=flat-plastic)](https://rentry.co/corgieint) 
-[![Visit](https://img.shields.io/badge/-guns-BFE7FF?style=flat-plastic)](https://guns.lol/corgiez) 
-[![Visit](https://img.shields.io/badge/-ponies-FFE2B3?style=flat-plastic)](https://rentry.co/corgiezponies)
+
+[![Visit](https://img.shields.io/badge/-int-AEDBFF?style=flat-plastic)](https://rentry.co/corgieint) 
+[![Visit](https://img.shields.io/badge/-guns-FFE2B3?style=flat-plastic)](https://guns.lol/corgiez) 
+[![Visit](https://img.shields.io/badge/-ponies-BFE7FF?style=flat-plastic)](https://rentry.co/corgiezponies)
+
 
 
 <img src="https://64.media.tumblr.com/d6be4a144387a44d157585bb22102e85/74c67c3b8b5d5330-6e/s100x200/0dbe7e1992e60a3a75b025db4324cf0a94fa522e.gifv" width="77">
