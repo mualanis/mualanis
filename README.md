@@ -39,3 +39,6 @@ $\color{#F6E7C9}{\textsf{The }}\color{#F1DDBA}{\textsf{longer }}\color{#EBCFA6}{
 ---
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31fjxxeuyl2fhkgy5lrbidri26fa&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=true&bar_color_cover=false&bar_color=82ACFF)](https://github.com/kittinan/spotify-github-profile)
+
+
+<sub> btw chat, I uploaded the full unreleased Frank Ocean's "American Wedding" song thru my [soundcloud](https://soundcloud.com/corgiez/american-wedding-frank-ocean?si=93f60264ba7f4b18bf37e545cd4b5639&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing) , feel free to check it out and listen ! <sub>
