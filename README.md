@@ -11,7 +11,9 @@
 
 <img src="https://i.pinimg.com/originals/3b/71/24/3b71244d6c2c73e1efebaa9c0b8e3c77.gif" width="500">
 
-' YoBro - Daniel Caesar '
+
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31fjxxeuyl2fhkgy5lrbidri26fa&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=true&bar_color_cover=false&bar_color=82ACFF)](https://github.com/kittinan/spotify-github-profile)
 
 
 ────────────────────────────────────
@@ -37,8 +39,5 @@ $\color{#F6E7C9}{\textsf{The }}\color{#F1DDBA}{\textsf{longer }}\color{#EBCFA6}{
 <img src="https://64.media.tumblr.com/d3036b9e9d09667c64a466f9575ec484/255f8d7b38f39802-fe/s1280x1920/105045c8d6d67c536318e41082a821c8b54161d6.jpg" width="77">
 
 ---
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31fjxxeuyl2fhkgy5lrbidri26fa&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=true&bar_color_cover=false&bar_color=82ACFF)](https://github.com/kittinan/spotify-github-profile)
-
 
 <sub> btw chat, I uploaded the full unreleased Frank Ocean's "American Wedding" song thru my [soundcloud](https://soundcloud.com/corgiez/american-wedding-frank-ocean?si=93f60264ba7f4b18bf37e545cd4b5639&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing) , feel free to check it out and listen ! <sub>
