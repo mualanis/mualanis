@@ -18,7 +18,7 @@
 
 ────────────────────────────────────
 
-[↻](https://open.spotify.com/track/3JVJEtCdqMYRjOnknmQTou?si=fb4894c98cbe42ec) [◁](https://open.spotify.com/track/1KiAtMAGayStCuLCH6EJAw?si=e146d519979a40f9)  [||](https://open.spotify.com/track/3JVJEtCdqMYRjOnknmQTou?si=fb4894c98cbe42ec)  [▷](https://open.spotify.com/track/2TdW76lddp3KDhLwzboqzY?si=1e41e82f3a6b4694)  [↺](https://open.spotify.com/track/3JVJEtCdqMYRjOnknmQTou?si=fb4894c98cbe42ec) 
+[↻](https://open.spotify.com/track/3JVJEtCdqMYRjOnknmQTou?si=fb4894c98cbe42ec) [◁](https://soundcloud.com/io518lbryem9/martin-nan-chun-by?si=b3b09be944054dc0b2fbea28589779ed&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)  [||](https://open.spotify.com/track/3JVJEtCdqMYRjOnknmQTou?si=fb4894c98cbe42ec)  [▷](https://open.spotify.com/track/2TdW76lddp3KDhLwzboqzY?si=1e41e82f3a6b4694)  [↺](https://open.spotify.com/track/3JVJEtCdqMYRjOnknmQTou?si=fb4894c98cbe42ec) 
 
 
 <img src="https://64.media.tumblr.com/3d2a4f9f39015fe720888bd67841534e/c5a3a15b831f86ef-79/s2048x3072/2337bbc24aa812f24cb78fd36c7a3c0b095eb346.pnj" width="400">
@@ -40,4 +40,3 @@ $\color{#F6E7C9}{\textsf{The }}\color{#F1DDBA}{\textsf{longer }}\color{#EBCFA6}{
 
 ---
 
-<sub> btw chat, I uploaded the full unreleased Frank Ocean's "American Wedding" song thru my [soundcloud](https://soundcloud.com/corgiez/american-wedding-frank-ocean?si=93f60264ba7f4b18bf37e545cd4b5639&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing) , feel free to check it out and listen ! <sub>
