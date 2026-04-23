@@ -27,10 +27,8 @@
 $\color{#FFD1DC}{\textsf{I }}\color{#FFB6C1}{\textsf{will }}\color{#FFA6B8}{\textsf{never }}\color{#FF93AC}{\textsf{be }}\color{#FF7F9D}{\textsf{perfect }}\color{#FF6F91}{\textsf{but }}\color{#FF5C84}{\textsf{I'll }}\color{#FF4D78}{\textsf{always }}\color{#FF3E6C}{\textsf{be }}\color{#FF2F60}{\textsf{real}}$
 
 
-[![Visit](https://img.shields.io/badge/-int-FFE9A3?style=flat-plastic)](https://rentry.co/corgieint) 
-[![Visit](https://img.shields.io/badge/-guns-FFB6C1?style=flat-plastic)](https://guns.lol/corgiez) 
-[![Visit](https://img.shields.io/badge/-ponies-AEDBFF?style=flat-plastic)](https://rentry.co/corgiezponies)
-
+-> [![Visit](https://img.shields.io/badge/-int-FFE9A3?style=flat-plastic)](https://rentry.co/corgieint) 
+[![Visit](https://img.shields.io/badge/-guns-FFB6C1?style=flat-plastic)](https://guns.lol/corgiez) <-
 
 
 <img src="https://64.media.tumblr.com/c12b41ef731229a81758525e07e28040/eb81d1fb199d324d-1e/s100x200/559f79c0ddd1e09f00245fa27346b50e3f863d85.gifv" width="77">
