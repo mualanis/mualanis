@@ -1,18 +1,20 @@
 
 <div align="center">
 
-![Profile views](https://komarev.com/ghpvc/?username=corgiez&label=my+smile+count%20&color=E3BBA1&style=square)
+![Profile views](https://komarev.com/ghpvc/?username=corgiez&label=summer+waves%20&color=B3E8FF&style=plastic)
+
 
 <img src="https://flagpedia.net/data/flags/emoji/apple/160x160/ph.png" width="30">  <img src="https://flagpedia.net/data/flags/emoji/facebook/256x256/de.png" width="30"> 
 
 
 <sub>rmking github profile a lot . corgiez . kazehaya kin </sub>
 
-<img src="https://i.pinimg.com/originals/3b/71/24/3b71244d6c2c73e1efebaa9c0b8e3c77.gif" width="500">
+
+<img src="https://media1.tenor.com/m/GxEWOysAt1AAAAAC/mualani-mualani-genshin.gif" width="500">
 
 
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31fjxxeuyl2fhkgy5lrbidri26fa&cover_image=true&theme=novatorem&show_offline=true&background_color=947C66&interchange=true&profanity=true&bar_color_cover=false&bar_color=BF9062)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31fjxxeuyl2fhkgy5lrbidri26fa&cover_image=true&theme=novatorem&show_offline=true&background_color=947C66&interchange=true&profanity=true&bar_color_cover=false&bar_color=85B9FF)](https://github.com/kittinan/spotify-github-profile)
 
 
 ────────────────────────────────────
@@ -20,22 +22,23 @@
 [↻](https://open.spotify.com/track/3JVJEtCdqMYRjOnknmQTou?si=fb4894c98cbe42ec) [◁](https://soundcloud.com/io518lbryem9/martin-nan-chun-by?si=b3b09be944054dc0b2fbea28589779ed&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)  [||](https://open.spotify.com/track/3JVJEtCdqMYRjOnknmQTou?si=fb4894c98cbe42ec)  [▷](https://open.spotify.com/track/2TdW76lddp3KDhLwzboqzY?si=1e41e82f3a6b4694)  [↺](https://open.spotify.com/track/3JVJEtCdqMYRjOnknmQTou?si=fb4894c98cbe42ec) 
 
 
-<img src="https://64.media.tumblr.com/3d2a4f9f39015fe720888bd67841534e/c5a3a15b831f86ef-79/s2048x3072/2337bbc24aa812f24cb78fd36c7a3c0b095eb346.pnj" width="400">
+<img src="https://64.media.tumblr.com/df6fe5b97ba16e96c67e1abdd768cea8/46574ada17dc5cfa-22/s1280x1920/68f7b528edbd305ed2e06bcb252063a172d05a6a.png" width="400">
+
+$\color{#9BE7FF}{\textsf{I }}\color{#7FDFFF}{\textsf{will }}\color{#63D6FF}{\textsf{never }}\color{#47CCF5}{\textsf{be }}\color{#2EC1E8}{\textsf{perfect }}\color{#1FB4DA}{\textsf{but }}\color{#17A6CC}{\textsf{I'll }}\color{#1097BD}{\textsf{always }}\color{#0A88AD}{\textsf{be }}\color{#05789C}{\textsf{real}}$
 
 
-$\color{#F6E7C9}{\textsf{The }}\color{#F1DDBA}{\textsf{longer }}\color{#EBCFA6}{\textsf{you're }}\color{#E4BF90}{\textsf{with }}\color{#DBAE7A}{\textsf{someone, }}\color{#D29C66}{\textsf{the }}\color{#C88B55}{\textsf{tougher }}\color{#BD7A45}{\textsf{it }}\color{#B06937}{\textsf{is }}\color{#A3592C}{\textsf{to }}\color{#944C25}{\textsf{part }}\color{#7F3F1F}{\textsf{ways.}}$
 
-
-
-[![Visit](https://img.shields.io/badge/-int-DBAC8C?style=flat-plastic)](https://rentry.co/corgieint) 
+[![Visit](https://img.shields.io/badge/-int-AEDBFF?style=flat-plastic)](https://rentry.co/corgieint) 
 [![Visit](https://img.shields.io/badge/-guns-FFE2B3?style=flat-plastic)](https://guns.lol/corgiez) 
-[![Visit](https://img.shields.io/badge/-ponies-FCE9DC?style=flat-plastic)](https://rentry.co/corgiezponies)
+[![Visit](https://img.shields.io/badge/-ponies-BFE7FF?style=flat-plastic)](https://rentry.co/corgiezponies)
 
 
 
-<img src="https://64.media.tumblr.com/8a41950cc1491efcf23a108d2227bf97/255f8d7b38f39802-c9/s2048x3072/385e6bb25e2bcf7b611c47b88bf5177bfa053145.jpg" width="77">
-<img src="https://64.media.tumblr.com/d4fe373a57b21d59fefc18d204286757/255f8d7b38f39802-07/s1280x1920/2ac5b6ae7418b959aca289bde77fa10b74796639.jpg" width="77">
-<img src="https://64.media.tumblr.com/d3036b9e9d09667c64a466f9575ec484/255f8d7b38f39802-fe/s1280x1920/105045c8d6d67c536318e41082a821c8b54161d6.jpg" width="77">
+<img src="https://64.media.tumblr.com/d6be4a144387a44d157585bb22102e85/74c67c3b8b5d5330-6e/s100x200/0dbe7e1992e60a3a75b025db4324cf0a94fa522e.gifv" width="77">
+<img src="https://64.media.tumblr.com/98fa70920f83c8dc9378c78a52ebb0e3/c12712fa6e2ee42e-bb/s100x200/1176417c966374abbb1057eae12814cd109d979f.gifv" width="77">
+<img src="https://64.media.tumblr.com/782e01184d10c0b475693e4e67bffa26/74c67c3b8b5d5330-8a/s100x200/76f829108dc69dc7edd7bd11cb315d152e2cb69b.gifv" width="77">
+
+---
 
 ---
 
